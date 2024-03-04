@@ -1,1 +1,0 @@
-# kti0801.github.io
